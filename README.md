@@ -1,2 +1,25 @@
 # Vipinrindavanam-
 Malayalam Movie Script Writer+ Healthcare Marketing &amp; Sales Expert, Business Analyst 
+***Vipin Vrindavanam*** Also Known As **Vipin Rajasekharan**
+
+🎓 *Maketing & Sales Expert* in Healthcare Industry ( ==MBA Marketing & HR From DCSMAT -MG University== )
+💻*Biomedical Engineer* Background -Sales Expert ( ==B.Tech Electronics & Biomedical Engg. Form Govt. Model Engineering College== )
+📋*Malayalam Script & Story Writer* (Expert in Genre- ==Comedy /Fantacy /Horror /Drama /Thriller Malayalam== and *Consultant in Movie* Scripts and Stories with Dialogues)
+| 📊 ***Business Analyst*** & Healthcare Consultant of Hospital and Healthcare Products|
+⌨️ *Professional - Advanced MS Office & Business Analytical Solutions , AI Based Solutions*
+
+Currently working on **Sales & Marketing** Healthcare Products , Business Consultant health-tech solutions to improve Hospital efficiency. Managerial Experience in Healthcare Sales & Marketing @ ||*Bbraun Medical India Pvt Ltd, Schulke India Pvt Ltd, Careon Healthcare Solutions, Sunrise Group of Hospitals*||
+Key Skills : ~Team Leader & Motivator , Marketing Analysis, Marketing Research & Efficiency, Customer Relationship Management, Result Oriented Marketing Strategy, Business Analysis, Agile Methodology & Critical Thinking~
+Currently working on **Malayalam Movies** Back End ***Scripts and Story*** and ***Consultant in Script & Story*** with Audience perspective as well as Marketing and Promotional expert for Scene by Scene Review for Movie makers . Completed the Stories ~*ശാന്തി നിലയം രമേശൻ, ആഗമനം, കൃഷ്ണപക്ഷം , ഗരുഡപുരാണം , പള്ളിപ്പുറം കാഴ്ചകൾ , സുഗുണൻ സുഗുണൻ, പടത്താളി, ദർപ്പണം, മൂവന്തിയിൽ കാതോർത്ത് , പാണ്ഡവൻപാറ , മന്നാൻ, ആമ്പൽത്തിരകൾ, സാളഗ്രാമം, കാപ്പെട, നന്ത്യാർവട്ടം, മാനേജർ, ഒരു ആശുപത്രി കഥ, കത്രികയിൽ ദൈവം , A Poor Sales Man, കുമാരൻ്റെ കുരുമുളക്, കാട്ടാവണക്ക്, വിശറി ഓന്ത്, വേട്ടാവളിയൻ , ശുക്രൻ്റെ കടി , കാക്കത്തിരണ്ടി, കരിങ്കൂവളം , തറവാടി മാമൻ , ഗ്രാമത്തിൽ നിന്ന് പട്ടണത്തിലേക്ക്*~
+📍 Based in *Alappuzha - Kochi* Kerala, India
+Born at *Vaikom* Brought up at *Cherthala* Stay at *Thripunithura*
+Studied ~St.Theresa's HS Manappuram~
+~VJHSS Aroor~
+~Govt Model Engineering College~
+~DCSMAT Vagamon~
+Hobbies: - ^Movies , Sports^ -Cricketer College & School Level , Event Management, Consultant Healthcare, Acting Short Stories and Drama in College Levels , Spoofs
+📧 [vipinvrindavanam@gmail.com]{blue}
+🔗[My LinkedIn](https://www.linkedin.com/in/vipin-rajasekharan-6a024721)
+🔗[My Facebook](https://www.facebook.com/vipin.vrindavanam.1)
+🔗[My Instagram](https://www.instagram.com/vipinvrindavanam?igsh=cmh5OG1pMWowbW0y)
+🔗[Mycards](vipinvrindavanam.carrd.co)
